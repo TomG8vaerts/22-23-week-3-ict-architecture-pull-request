@@ -23,4 +23,4 @@ John was in de war en geschokt. Hij begreep niet wat er net was gebeurd. Maar te
 John verliet het toernooi met een dankbaar en verward gevoel. Hij wist dat hij deel uitmaakte van iets dat groter was dan hijzelf, en hij kon niet wachten om te zien wat voor andere vreemde ontmoetingen de wereld voor hem in petto had.
 
 ![foto 1](/mrSmith.jpg)
-![foto 2](/schaakbord.jpg)
+![foto 2+](/schaakbord.jpg)
