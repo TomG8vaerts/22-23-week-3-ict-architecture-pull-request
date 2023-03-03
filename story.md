@@ -21,3 +21,6 @@ Uiteindelijk deed John een zet die de overwinning bezegelde. Meneer Smith glimla
 John was in de war en geschokt. Hij begreep niet wat er net was gebeurd. Maar terwijl hij naar meneer Smith keek, besefte hij dat hij geen gewone schaaktegenstander was. Hij was een voogd die was gestuurd om John te beschermen tegen een kwade kracht die had geprobeerd zijn geest over te nemen.
 
 John verliet het toernooi met een dankbaar en verward gevoel. Hij wist dat hij deel uitmaakte van iets dat groter was dan hijzelf, en hij kon niet wachten om te zien wat voor andere vreemde ontmoetingen de wereld voor hem in petto had.
+
+![foto 1](/mrSmith.jpg)
+![foto 2+](/schaakbord.jpg)
